@@ -1,4 +1,4 @@
-# 💫 About Me: Hi I'm Sunil
+# Hi I'm Sunil
 🎓 I am graduated  from Dayanad Sagar College of Engineering, Bangalore <br>       I am currently looking for Data Analyst Job. 
 
 
